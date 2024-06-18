@@ -1,4 +1,4 @@
-## Halo Semua 👋
+## Hello Semua!! 👋
 
 Perkenalkan nama saya **Mochammad Najib**.
 
